@@ -1,7 +1,6 @@
-![WhatsApp Image 2024-02-15 at 7 59 54 PM](https://github.com/JorgeAAG/Facultades_uteq/assets/151756124/c630f80c-b545-4dad-b6db-11dd7539311a)
-![WhatsApp Image 2024-02-15 at 7 59 54 PM (1)](https://github.com/JorgeAAG/Facultades_uteq/assets/151756124/be0cedef-e0be-451d-8dd9-b9fedcf021ff)
-![WhatsApp Image 2024-02-15 at 7 59 55 PM](https://github.com/JorgeAAG/Facultades_uteq/assets/151756124/4dae4d87-feca-49ea-b1ed-fd02a0f9f621)
-![WhatsApp Image 2024-02-15 at 7 59 55 PM (1)](https://github.com/JorgeAAG/Facultades_uteq/assets/151756124/6fbd5a57-01dd-45df-b800-9feaab9d5463)
 
 
 
+![captura 1](https://github.com/FernandoArraes/GoogleMaps_Arrraes/assets/62870978/2f34e395-8d2a-436e-8624-dd0c75338555)
+![captura 2](https://github.com/FernandoArraes/GoogleMaps_Arrraes/assets/62870978/112ea5cb-9324-440d-83a0-22a01121caa2)
+![captura 3](https://github.com/FernandoArraes/GoogleMaps_Arrraes/assets/62870978/a887b7c9-7db0-4837-bbd9-2443d6358fd6)
